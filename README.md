@@ -15,3 +15,6 @@ Group 7
 Managerial economics & programming
 Second semester
 Copenhagen Buisness school
+
+
+ICANEDITTHIS OMGL33HAXOOR XOXOXO
